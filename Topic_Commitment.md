@@ -1,2 +1,1 @@
-My topic will be the over the use of growth hormones and antibiotics in the poultry industry. So, I will discuss the dietary needs for meat birds and what they are fed. I will discuss the myth behind using growth hormones and why people are concerned about the use of growth hormones. In addition, I will also talk about the use of antibiotics and the importance of using antibiotics to treat birds and discuss why people are concerned with the use of antibiotics to treat birds. Both are issues that concern human consumtion of poultry products. 
 

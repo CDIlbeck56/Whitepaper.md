@@ -1,1 +1,1 @@
-# Whitepaper.md
+# White-paper.md

@@ -24,18 +24,26 @@ GM crops are not proven to bad for your health. They are highly regulated and re
 ## **Refrences**
 
 Diouf, J. (2001). Genetically Modified Organisms, Consumers, Food Safety and the Environment. FAO Information Division, 1-9. http://www.fao.org/docrep/003/x9602e/x9602e00.htm#TopOfPage
+
 Jamil, K. (2009). A Solution to Hunger? UN Chronicle, 46(3/4), 70–72. Retrieved from http://search.ebscohost.com/login.aspx?direct=true&db=a9h&AN=47833603&site=ehost-live 
+
 Panchin, A. Y., & Tuzhikov, A. I. (2017). Published GMO studies find no evidence of harm when corrected for multiple comparisons. Critical Reviews in Biotechnology, 37(2), 213–217. https://doi.org/10.3109/07388551.2015.1130684
+
 Ruhs B. Update: GMOs in Foods. Environmental Nutrition. 2013;36(2):1-6. http://search.ebscohost.com/login.aspx?direct=true&db=a9h&AN=84988040&site=ehost-live. Accessed December 1, 2018. 
+
 Smith, M. D. (2011). SAY NO TO GMOs. Better Nutrition, 73(3), 46–50. Retrieved from http://search.ebscohost.com/login.aspx?direct=true&db=a9h&AN=58460741&site=ehost-live 
 
 ## **Pictures**
 
 Figure 1. https://images.dailykos.com/images/98316/story_image/keep-calm-gmo-safe.png?1407193024
+
 Figure 2. http://sitn.hms.harvard.edu/wp-content/uploads/2015/08/toxicity-graphic-edit.jpg
+
 Figure 3. http://media2.policymic.com/551cfef69a55dac2656ef63ac13eaed5.jpg
+
 Figure 4. https://gmoanswers.com/sites/default/files/GMO_Infographic_Habitat 
 Preservation_v8_7.27.16%5B1%5D%5B1%5D.jpg
+
 Figure 5. https://gmoanswers.com/sites/default/files/gmo-crops.jpg
 
  
